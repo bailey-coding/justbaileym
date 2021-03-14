@@ -12,5 +12,7 @@
 - 📫 How to reach me: 
   - Social media links
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I make a lot of silly jokes and puns
+- ⚡ Fun fact:
+  - I make a lot of silly jokes and puns
+  - 9s don't matter if your users aren't happy
 
